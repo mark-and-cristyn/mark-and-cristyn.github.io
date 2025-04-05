@@ -17,7 +17,7 @@ Our reception is being hosted in the ballroom at the [C-Hotel](https://carmensho
 
 # Guest Accomodations
 
-As we are hosting a small event near our hometowns, we  will not be arranging group accomodations. All of our wedding guests can receive 10% off their room rentals at the C-Hotel. Inform the reservation agent that you are part of the Vandergeest-Howard wedding on the 26th of July, and the discount will be apllied to the room of your choice.
+As we are hosting a small event near our hometowns, we will not be arranging group accomodations. All of our wedding guests can receive 10% off their room rentals at the C-Hotel. Inform the reservation agent that you are part of the Vandergeest-Howard wedding on the 26th of July, and the discount will be applied to the room of your choice.
 
 # Gifts
 
