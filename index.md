@@ -17,11 +17,11 @@ Our reception is being hosted in the ballroom at the [C-Hotel](https://carmensho
 
 # Guest Accomodations
 
-As we are hosting a small event near our hometowns, we will not be arranging group accomodations. All of our wedding guests can receive 10% off their room rentals at the C-Hotel. Inform the reservation agent that you are part of the Vandergeest-Howard wedding on the 26th of July, and the discount will be applied to the room of your choice.
+As we are hosting a small event near our hometowns, accomodations will be left up to individual guests. All of our wedding guests can receive 10% off their room rentals at the C-Hotel. Inform the reservation agent that you are part of the Vandergeest-Howard wedding on the 26th of July, and the discount will be applied to the room of your choice.
 
 # Gifts
 
-In lieu of a gift registry, we will have a money box available at the reception venue. We would like to thank you all for supporting us as we begin our new life together.
+As we embark on our married life, we are incredibly grateful for your support. If you would like to contribute to our future together, a contribution box will be available at the reception. However, please know that your presence at our wedding is what truly matters to us.
 
 # RSVP
 
